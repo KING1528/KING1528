@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @KING1528
+- 👀 I’m interested in cricket,coding.video games
+- 🌱 I’m currently learning programming
+- 😄 Pronouns: he/him
